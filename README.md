@@ -1,1 +1,0 @@
-# inforday.github.io
